@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">hai!!! i'm pwu ◜◝ </p>
-<p align="center">im usually on ponytown.(fnaf or ut/dr area) if im offline, im at school/sleeping </p>
+<p align="center">im usually on ponytown.(fnaf or ut/dr area) if im offline, im at school/sleeping (edit...im currently perma banned😞.) </p>
 <p align="center">c+h . int freely  ೨౿  </p>
 <p align="center">my pronouns are anything! . i identify as a pudding btw🍮🍮🍮</p>
 <p align="center">
